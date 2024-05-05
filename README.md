@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on [not yet]
 - 📫 sahalannabil2525@gmail.com
 - 😄 Pronouns: your honor
-- ⚡ Fun fact: in my home country, we don't use pronouns
+- ⚡ Fun fact: in my home country, we use the same pronouns for anyone
 
 <!---
 Yuclahas/Yuclahas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
